@@ -17,7 +17,15 @@ Me: Our house had a gravel path leading up to it’s creaky front door.
 
 *Creaky door opens, slow piano music starts and continues*
 
-Me: I lived in that same house in Mechanicsville all my life, 23 years, until we moved. My Dad lived there for 30 and my mom for nearly 49. And the house saw many years before us, having been built over a hundred years ago. There is a lot of life wrapped up in those four walls… or should I say there was. 
+Me: I lived in that same house in Mechanicsville, 189 Hinchey Ave., from 1997 to 2020. That was my entire life until we moved. My Dad lived there for
+
+Dad: 30 
+
+Me: and my mom 
+
+Mom:
+
+Me: And the house saw many years before us, having been built probably in 1874. There is a lot of life wrapped up in those four walls… or should I say there was. 
 
 Mom: The home um was a two story um long and skinny because the lots were all 25 by hundred.
 
