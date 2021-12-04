@@ -12,8 +12,8 @@ Me: A lone figure who just can’t wait to crawl into a warm bed. *Man sighing h
 
 Me: These people aren’t that different from those I see in the area today, or those who I remember seeing yesterday. It’s just that, I don’t know these people and they don’t know me. How could they? 
 
-
 *Background noise changes, more machine sounds and construction*
+
 Me: I think over here, I think it was this one
 
 Dad: That you marked the name? 
@@ -29,9 +29,11 @@ Dad: Yeah
 Me: You can kind of see
 
 *Footsteps continuous*
+
 Me: When I was at the age when learning to write your own name rocked my world, the only thing more exciting was a blank canvas of permanent proportions, freshly laid concrete. I remember gleefully writing my full name in that pristine slab of sidewalk right outside our front door. Much to the horror of my parents who were understandably concerned about the security hazards that come along with having your kid’s full name as a public welcome mat.
 
 *Background noise changes, more machine sounds and construction*
+
 Me: Who would have… Did you think… When we were... Cause I remember I wrote my name
 
 Dad: yes yeah
@@ -43,6 +45,7 @@ Dad: No, that's a long time back. No, no and it was just part of growing up. Y�
 Me: Yeah.
 
 *Footsteps continuous*
+
 Me: So here is the beautiful, poetic line I had scripted to say here: 
 
 Me: “Now it almost feels like a reprisal. Like in some small way I’ve left a mark on Mechanicsville like it left its mark on me.”
