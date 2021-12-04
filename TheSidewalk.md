@@ -4,7 +4,7 @@
 
 Me: I sometimes think about who will be travelling the sidewalks of Mechanicsville in 5 years. 
 
-Me: A young professional couple with their furbaby prancing proudly in front of them. *dog barking*
+Me: A young professional couple with their furbaby prancing proudly in front of them. *Dog barking*
 
 Me: A bright-eyed toddler stumbling along under the watchful gaze of their grandfather.
 
